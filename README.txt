@@ -1,4 +1,3 @@
 README
 
-i wanna kashoot myself
-ahahhaha
+Gibberish
